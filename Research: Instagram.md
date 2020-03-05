@@ -42,7 +42,8 @@ In October 2019, Instagram removed the Following activity tab where users could 
 **RELATED TECHNOLOGIES**
 ![IMG_5922.jpg]({{site.baseurl}}/IMG_5922.jpg)
 
-
+**PRESENTATION**
+https://docs.google.com/presentation/d/1yYtABcxm5nysIqx61fwPyF17Qg0bir46FlqkNLJ8V0g/edit?usp=sharing
 
 [1]  https://about.instagram.com/about-us
 
