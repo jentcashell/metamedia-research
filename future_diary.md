@@ -6,3 +6,9 @@ With all the development and almighty tools of IG, I was able to create a visual
 
 Some of my fans create art based on my style, and I feel proud to inspire a younger generation of artists. I also opened a shop for my original art, prints, and merchandise, making art making not just a passion but also turned it into a business. However, I will not lose the authenticity of my art and keep doing art with passion and intuition.
 
+
+**2. Negative diary**
+
+Back in 2020, I was an 18 years old girl desperately wanting to be beautiful like supermodels, like Kylie Jenner. I was captivated by the blinding lights of fame, and where else can I get famous easier than Instagram? So I decided to settle to become an influencer. The botox lips, the snatched facelift, the boob jobs, the liposuction. I did them all. I post photos of myself daily on Instagram to gain more followers and kept on spreading the hype of gen-Z's beauty standard. No matter how much surgery I had, I never felt it was enough. I found myself constantly scrolling through the Instagram feed and always find people who look more beautiful than me. I was filled with envy. Even though I know it’s the magic of Photoshop, I still want to achieve the supreme level of beauty, for the likes, for the followers, for the fame. So I did not stop until my body can’t take any more surgery.
+
+I put myself in a hole of constant injections of plastic and fillers. At 30 years old, I am left with scars of failed surgeries. It’s a horror to live like a saggy rotten corpse. I was never able to embrace my own beauty, and I partly blame that on Instagram and how the 2020s popularized the craze of unnatural beauty and targeted woman’s insecurity.
